@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @St4rDustCrybaby
+- 👀 I’m interested in Videogames and Art
+- 🌱 I’m currently learning Guitar(? Idk if thats what its asking
+- 💞️ I’m looking to collaborate on nothing cuz I dont know anything about code lmao
+- 📫 How to reach me @st4r_dust._ on instagram
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: My favourite animal is the sloth :)
